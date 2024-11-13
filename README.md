@@ -1,7 +1,7 @@
 - 👋 Hi, I’m dhanasreebantu
 - 👀 I’m interested in dance
 - 🌱 I’m currently learning dance
-- 💞️ I’m looking to collaborate on television 
+- 💞️ I’m looking to collaborate with sindhuja
 - 📫 How to reach me text me
 - 😄 Pronouns: dhana sree 
 - ⚡ Fun fact: Big fear for hen
