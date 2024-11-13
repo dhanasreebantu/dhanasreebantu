@@ -2,7 +2,7 @@
 - 👀 I’m interested in dance
 - 🌱 I’m currently learning dance
 - 💞️ I’m looking to collaborate on television 
-- 📫 How to reach me 1234567890
+- 📫 How to reach me text me
 - 😄 Pronouns: dhana sree 
 - ⚡ Fun fact: Big fear for hen
 
